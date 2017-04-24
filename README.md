@@ -1,0 +1,2 @@
+# http-motivatemeindia.com-true-inspirational-story-trishneet-arora-
+1.Trishneet Arora जो success cyber security expert, ethical hacker और entepreneure हे वह आंठ्वी class में fail हुए थे 2.TAC Security, करोड़ो की company के मैलिक बने  3.आज उनकी client list में Punjab Police, Gujarat Police, CBI, Reliance, Amul वगैरह सम्मिलित हे आगे http://motivatemeindia.com/true-inspirational-story-trishneet-arora/
